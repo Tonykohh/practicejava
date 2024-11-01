@@ -22,4 +22,4 @@ well fuck it i fuck around swallow the blue pill
 iggas wanna control me?(what?)
 niggas wanna control me!!!! (we aint let it happen x2)
 they wanna control me 
-they aint never gon own me
+they aint never gon own me (big dawg)
